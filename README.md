@@ -1,4 +1,4 @@
-# Armadillo with with Coronavirus
+# Armadillo with Coronavirus
 
 ### (Ice-cream with red virus popping up)
 
